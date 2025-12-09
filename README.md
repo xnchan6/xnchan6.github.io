@@ -1,1 +1,1 @@
-# xnchan6.github.io
+# [xnchan6.github.io](https://hoo.be/yaojingdm)
